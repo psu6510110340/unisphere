@@ -8,6 +8,9 @@ https://www.canva.com/design/DAG0jb0MSCE/zUwV3Vg6Jf-Gv_1H-dc78A/view?utm_content
 Report :
 https://drive.google.com/file/d/1vEH3efq-j08TxVyXGTA-arPYXzRlll8z/view?usp=sharing
 
+Task View :
+https://github.com/users/Thanutham-T/projects/6/views/6
+
 ---
 
 ## ✨ Features
